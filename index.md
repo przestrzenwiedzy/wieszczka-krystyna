@@ -4,14 +4,14 @@ title: Wieszczka Krystyna
 
 # Wieszczka Krystyna
 
-**Us≥ugi ezoteryczne ï Analizy numerologiczne ï WrÛøby ï Sesje**
+**Us≈Çugi ezoteryczne ‚Ä¢ Analizy numerologiczne ‚Ä¢ Wr√≥≈ºby ‚Ä¢ Sesje**
 
 ---
 
 ### Informacje prawne
 
-- **[Regulamin åwiadczenia Us≥ug i Sklepu Internetowego](./regulamin)**  
-- **[Polityka Prywatnoúci i PlikÛw Cookies](./polityka-prywatnosci)**
+- **[Regulamin ≈öwiadczenia Us≈Çug i Sklepu Internetowego](./Regulamin)**  
+- **[Polityka Prywatno≈õci i Plik√≥w Cookies](./Polityka-prywatnosci)**
 
 ---
 
